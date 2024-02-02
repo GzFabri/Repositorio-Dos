@@ -6,3 +6,4 @@
 
 **con mayor participacion entre paises**
 
+**cuatro de cada diez colombianos utiliza este tipo de herramientas**
