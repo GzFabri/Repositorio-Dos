@@ -4,3 +4,5 @@
 
 **el mercado gamer es una industria**
 
+**con mayor participacion entre paises**
+
